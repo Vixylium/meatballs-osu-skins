@@ -1,7 +1,7 @@
-# Meatballs' osu! skins.
+# meatballs' osu! skins.
 # Click the name of the skin to download!
 
-# [WhiteCat CK (overrated player shige best)](https://skins.osuck.net/index.php?newsid=1107)
+# [WhiteCat CK](https://skins.osuck.net/index.php?newsid=1107)
 ![](https://vixylium.s-ul.eu/wD8oNAMk)
 
 # [Chino Skin](http://www.mediafire.com/file/hy8nut0yjv1zcbm/Jay%2527s_chino_by_Shioraosu.osk/file)
