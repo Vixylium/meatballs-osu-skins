@@ -1,9 +1,10 @@
-hi owo
-# meatballs' osu! skins.
+yes...
+# RelaxingTuna's skin selection.
 # Click the name of the skin to download!
 
-# [WhiteCat CK(overrated player shige better)](https://skins.osuck.net/index.php?newsid=1107)
+# [WhiteCat Skin Set (CK & DT)](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
 ![](https://vixylium.s-ul.eu/wD8oNAMk)
+![](https://i.imgur.com/UHfrpIl.jpg)
 
 # [Chino Skin](http://www.mediafire.com/file/hy8nut0yjv1zcbm/Jay%2527s_chino_by_Shioraosu.osk/file)
 ![](https://osu.ppy.sh/ss/15217002/ddf9)
