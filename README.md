@@ -4,7 +4,7 @@ yes...
 
 # [WhiteCat Skin Set (CK & DT)](https://www.mediafire.com/folder/3vnwgwe8vcsrv/WhiteCat)
 
-# [Vaxei Skin] (https://drive.google.com/file/d/1EEExrMkFIPO5WP74rknzY7dtMXpAz2_G/view?usp=sharing)
+# [Vaxei Skin](https://drive.google.com/file/d/1EEExrMkFIPO5WP74rknzY7dtMXpAz2_G/view?usp=sharing)
 
 # [Chino Skin](http://www.mediafire.com/file/hy8nut0yjv1zcbm/Jay%2527s_chino_by_Shioraosu.osk/file)
 
